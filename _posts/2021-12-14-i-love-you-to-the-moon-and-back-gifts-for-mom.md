@@ -16,7 +16,16 @@ This is a special collection of [i love you to the moon and back gifts for mom](
 
 ![i love you to the moon and back gifts for mom 1](https://hoanghabc.github.io/images/i-love-you-to-the-moon-and-back-gifts-for-mom-1.png)
 
-<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script><!-- Texxtonly --><ins class="adsbygoogle" style="display:inline-block;width:336px;height:280px" data-ad-client="ca-pub-6753140515841889" data-ad-slot="3207852233"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-6753140515841889"
+     crossorigin="anonymous"></script>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-6753140515841889"
+     data-ad-slot="5405745125"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 ## i love you to the moon and back gifts for mom 2
 
