@@ -34,3 +34,5 @@ This is a special collection of [I love you to the moon and back ring Part 2](ht
 
 ![I love you to the moon and back ring Part 2 5](https://hoanghabc.github.io/images/I-love-you-to-the-moon-and-back-ring-Part-2-5.png)
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-6753140515841889" crossorigin="anonymous"></script> <ins class="adsbygoogle" style="display:block" data-ad-format="autorelaxed" data-ad-client="ca-pub-6753140515841889" data-ad-slot="5405745125"></ins><script>(adsbygoogle = window.adsbygoogle || []).push({}); </script>
+
